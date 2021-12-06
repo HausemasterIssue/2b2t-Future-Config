@@ -1,5 +1,5 @@
 # lol
-imagine selling configs for $10, what a bozo. ty to the bro who gave me this, not gonna say who. also future autocrystal is easy as shit to config if you can't config it your just super dumb.
+imagine selling configs for $10, what a bozo. ty to the bro who gave me this, not gonna say who. also future autocrystal is easy as shit to config if you can't config it your just super dumb. also if this is already leaked by someone and ur about to call me retarded for thinking i leaked it, then keep reading. other people have probably leaked it i just smacked it here to fuck wao, enjoy.
 
 shoutout to fencingf, paowe30, aestheticall and the fellas.
 
